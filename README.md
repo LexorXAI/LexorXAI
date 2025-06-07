@@ -82,7 +82,7 @@ Invite your friends and earn:
 - **Email**: multimosaic.help@gmail.com  
 - **Instagram**: [@LexorXAI](https://www.instagram.com/multi.mosaic/)  
 - **LinkedIn**: [LexorX AI](https://www.linkedin.com/company/multimosaic)  
-- **Facebook**: [LexorX]([https://www.facebook.com](https://www.facebook.com/profile.php?id=61574916413888))  
+- **Facebook**: [LexorX]([https://www.facebook.com](https://www.facebook.com/profile.php?id=61574916413888)  
 - **Twitter/X**: [@LexorX_AI](https://x.com/multi_mosaic)
 
 ---
